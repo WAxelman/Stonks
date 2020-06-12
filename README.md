@@ -1,2 +1,0 @@
-# Stonks
-STONK MARKET
